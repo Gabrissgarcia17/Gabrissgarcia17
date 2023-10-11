@@ -1,0 +1,5 @@
+- 👋 oi eu sou o Gabriel
+- 👀 estou enteressado em volei
+- 🌱 atualmente estou fazendo pensamento computacional
+- 💞️ procuro colaborar nas aulas
+- 📫 instagram
